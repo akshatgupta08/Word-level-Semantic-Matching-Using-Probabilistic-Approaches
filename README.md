@@ -1,4 +1,4 @@
-Data Analyst at Edvanza Jan. 2021 – Feb. 2021
+Data Analyst at Edvanza Jan. 2023 – May. 2023
 Edvanza - London based start-up Remote
 
 • Cleaned and organised data in the excel file holding more than 1000 applicant entries.
